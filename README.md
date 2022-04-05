@@ -1,2 +1,1 @@
 Adilbek Bazarkulov
-26
